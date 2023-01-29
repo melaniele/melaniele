@@ -3,4 +3,4 @@
  
  🌱 I’m currently learning Software Development at Seneca College, Toronto, Canada </br>
  
- 📫 Hit me up at: https://www.linkedin.com/in/melanie-le-3a89a2204/</br>
+ 📫 Hit me up at: https://www.linkedin.com/in/melanie-le-ca/</br>
